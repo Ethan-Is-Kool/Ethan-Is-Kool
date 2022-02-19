@@ -7,4 +7,4 @@
 - 💬 Ask me about c#, html, css, js
 - 📫 How to reach me: discord.io/PLCoding or PeenkLion#0001
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: please stop your programming career if your pronouns are not he/him or she/her thanks
+- ⚡ Fun fact: i dont like people who: have weird pronouns, dream stans, emos, people under the age of 13, and tree sap
