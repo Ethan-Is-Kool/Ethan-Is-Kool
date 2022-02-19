@@ -1,8 +1,4 @@
-### Hi there 👋
-
-**Ethan-Is-Kool/Ethan-Is-Kool** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
+### why are you here bro what are you looking for? get out 👋
 
 - 🔭 I’m currently working on nothing
 - 🌱 I’m currently learning c++
