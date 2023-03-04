@@ -1,4 +1,4 @@
-### why are you here bro what are you looking for? get out 👋
+
 
 - 🔭 I’m currently working on nothing
 - 🌱 I’m currently learning c++
